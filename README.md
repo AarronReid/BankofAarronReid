@@ -1,1 +1,3 @@
-40% increase 
+300% intrea 
+30% intrst
+4% daily 
